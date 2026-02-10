@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @derakon08
 - 👀 I’m interested in games and such
 - 🌱 I’m currently reading through TOP
-- 💞️ I’m looking to collaborate on hobby projects, or something chill really
+- 💞️ I’m looking to collaborate on hobby projects and game projects
 - 📫 How to reach me: dera_kon on discord
 - 😄 Pronouns: she/they
 - ⚡ Fun fact: my account was first edited two years after i created it lol
